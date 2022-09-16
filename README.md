@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-- 🔭 I’m currently working on Cynoia platform
+- 🔭 I’m currently a Blocky Team memeber
 - 🌱 I’m currently learning new technologies
 - 📫 How to reach me: azzamani545@gmail.com
 
